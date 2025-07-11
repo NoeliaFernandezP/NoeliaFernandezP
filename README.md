@@ -2,15 +2,15 @@ Bonjour ❤️
 
 ━━━━━━━━━━━━━━━ ✦ ━━━━━━━━━━━━━━━
 
-🧀 Soy Quesito 
+🧀 **Soy Quesito**  
 
 ---
 
-🎓 Estudiante de Ingeniería de Sistemas 
+🎓 **Estudiante de Ingeniería de Sistemas**  
 
 ---
 
-🎶 Amante de la música 
+🎶 **Amante de la música**  
 Toco 5 instrumentos:  
 🎸 Mandolina  
 🎸 Guitarra  
@@ -65,4 +65,4 @@ Juegos favoritos:
 
 ✦･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✦ ✦･ﾟ: ✧･ﾟ:  :･ﾟ✧ :･ﾟ✦
 
-_"Vivo con el miedo constante"_ 🌱
+"Vivo con el miedo constante"🌱
