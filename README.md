@@ -61,8 +61,6 @@ Juegos favoritos:
 🎮 Five Nights at Freddy's  
 🎮 Hollow Knight  
 
----
-
 ✦･ﾟ: *✧･ﾟ:*  *:･ﾟ✧*:･ﾟ✦ ✦･ﾟ: ✧･ﾟ:  :･ﾟ✧ :･ﾟ✦
 
 "Vivo con el miedo constante"🌱
